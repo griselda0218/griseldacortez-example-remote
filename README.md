@@ -8,4 +8,10 @@ im kinda tired right now
 
 mood honesly tired of everything 
 
+
 i recommend a nap after this class :)
+
+
+"Honestly cheif" 
+
+

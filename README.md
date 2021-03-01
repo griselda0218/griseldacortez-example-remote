@@ -8,6 +8,7 @@ im kinda tired right now
 
 mood honesly tired of everything 
 
+
             _   _
            (.)_(.)
         _ (   _   ) _
@@ -15,3 +16,16 @@ mood honesly tired of everything
      __\ ( (     ) ) /__
      )   /\ \._./ /\   (
       )_/ /|\   /|\ \_(
+
+
+need the semester to be over now 
+
+
+i recommend a nap after this class :)
+
+
+"Honestly cheif" 
+
+
+
+
